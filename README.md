@@ -1,0 +1,2 @@
+# Applied_Mathematics_Homework_By_Littlemine
+Applied Mathematics Homework
